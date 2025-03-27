@@ -1,6 +1,8 @@
- # <p align="center">  $\color{#e2a76e}{\textsf{ Pfp art credits by}}$ $\color{#a4abb1}{\textsf{@KATZUKOS}}$ $\color{#e2a76e}{\textsf{ Readme art by}}$  $\color{#a4abb1}{\textsf{@Lantainerz}}$ $\color{#e2a76e}{\textsf{on twt . Dividers by}}$ $\color{#a4abb1}{\textsf{@lavendergalactic}}$ $\color{#e2a76e}{\textsf{and}}$ $\color{#a4abb1}{\textsf{@muffiinss}}$ $\color{#e2a76e}{\textsf{on tumblr }}$
+> $\color{#e2a76e}{\textsf{ Pfp art credits by}}$ $\color{#a4abb1}{\textsf{.}}$ $\color{#e2a76e}{\textsf{ Readme art by}}$  $\color{#a4abb1}{\textsf{@Lantainerz}}$ $\color{#e2a76e}{\textsf{on twt . Dividers by}}$ $\color{#a4abb1}{\textsf{@lavendergalactic}}$ $\color{#e2a76e}{\textsf{and}}$ $\color{#a4abb1}{\textsf{@muffiinss}}$ $\color{#e2a76e}{\textsf{on tumblr }}$
 <p align="center"><img src="https://github.com/user-attachments/assets/01373494-9673-4ccd-beb7-ec0a85b4f124" width="1000000">
-<p align="center">$\color{#e2a76e}{\textsf{ -- }}$ $\color{#a4abb1}{\textsf{" I'm}}$ $\color{#e2a76e}{\textsf{Captivated by your}}$ $\color{#a4abb1}{\textsf{Love  . "}}$
+<p align="center">$\color{#e2a76e}{\textsf{ -- }}$ $\color{#a4abb1}{\textsf{" `I'm`}}$ $\color{#e2a76e}{\textsf{`Captivated` `by` `your`}}$ $\color{#a4abb1}{\textsf{`Love`  . "}}$
+
+<p align="center">                                               
 <p align="center"><img src="https://github.com/user-attachments/assets/27fd729c-63c6-4757-8639-8bfe7b8ae8c4" width="1000">
 <p align="center"><img src="https://github.com/user-attachments/assets/7a2f6367-400f-4e54-ab6e-abbbcacfd486" width="700">
 
