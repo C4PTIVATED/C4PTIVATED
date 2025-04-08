@@ -8,7 +8,7 @@
 
 <p align="center">$\color{#e2a76e}{\textsf{ Interests -}}$  $\color{#a4abb1}{\textsf{  Most unlisted }}$
 <p align="center"><img src="https://github.com/user-attachments/assets/c9928ad3-3db3-4332-968f-61b4eafa04ac" width="700">
-<p align="center">$\color{#e2a76e}{\textsf{ Forsaken. Dream Game. Object Shows. Yaelokre. Othello (Shakespeare play). Dandys world (fandom iwcuf)}}$
+<p align="center">$\color{#e2a76e}{\textsf{ Forsaken. Dream Game. Object Shows. Yaelokre. Othello (Shakespeare play). Crimson Shadows}}$
 <p align="center">$\color{#e2a76e}{\textsf{ Daybreak. Vocaloid/Pjsk/Evillious Chronicles. Epic the Musical. Aphmau rps }}$
 <p align="center">$\color{#a4abb1}{\textsf{ -- My Inner Demons. Minecraft Diaries. Mystreet }}$
 <p align="center">$\color{#e2a76e}{\textsf{ Studio Investigrave. Disventure Camp/Tdi. Sonic. GhostnPals songs. }}$
