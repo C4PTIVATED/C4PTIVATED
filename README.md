@@ -11,7 +11,8 @@
 <p align="center">$\color{#e2a76e}{\textsf{ Forsaken. Dream Game. Object Shows. Yaelokre. Othello (Shakespeare play). Crimson Shadows}}$
 <p align="center">$\color{#e2a76e}{\textsf{ Daybreak. Vocaloid/Pjsk/Evillious Chronicles. Epic the Musical. Aphmau rps }}$
 <p align="center">$\color{#a4abb1}{\textsf{ -- My Inner Demons. Minecraft Diaries. Mystreet }}$
-<p align="center">$\color{#e2a76e}{\textsf{ Studio Investigrave. Disventure Camp/Tdi. Sonic. GhostnPals songs. }}$
+<p align="center">$\color{#e2a76e}{\textsf{ Studio Investigrave. Disventure Camp/Tdi. Sonic. GhostnPals songs. Starkid shows}}$
+<p align="center">$\color{#a4abb1}{\textsf{ -- Nerdy prudes must die. the guy who doesn't like musicals. Cinderella's castle. + etc}}$
 
 
 <p align="center"><img src="https://github.com/user-attachments/assets/dd2d32dc-05d1-41d3-b8fd-483a7666c8b3" width="800">
