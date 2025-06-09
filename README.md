@@ -5,4 +5,4 @@ ok i know some of you are asking "heyy where did the picture go!!" to answer tha
 <p> me and my online brothr fORREALFORREAL
 
 
-<p> pfp art by mellozheist
+<p> pfp art by applestruda 
