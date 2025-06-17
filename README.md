@@ -1,7 +1,6 @@
-'i see you with someone called tokiofunka, who is this bitchass???' my lover obviously?? unlike you i dO get bitches AHA!!!!! but i know what you're thinking 'isint that person your alt account?? why the absoloute hell would you pretend your alt account is your lover?? creep.' OK IM VERY LONLEY OKYA AND MAKING FRIENDS IS HARD, let alone ppl with free c+h IM NOT FALLING FOR THAT TRICKERY!!!!!!!!! ok tbh everytime i go on hermithill and i just see peoples oomfies just c+h i feel threatend,,/nsrs SO I HAVE A SOLUTION, why not be friends with MYSELF, only I can understand ME!!!!! WHAT I WANT!!!!!! RAHGKAHSGJ!!!!!!! 
-(this isint a vent btw)
-
-<img src="https://i.pinimg.com/736x/c9/ed/c0/c9edc09ce361f0618fe878cee4d0bd8b.jpg" width="700">
-<p> me and oomfies FOR REAL FOR REALL (im scar probably)
+ohmygod i forgot to update the rentry and picture yesterday,, BUT WHO CARES, I GOT MINECRAFT THAT DAY SO HOORAYY FOR MEEE!!1!!!! as always, SMALL PICTURE FOR YOU, BIG PICTURE FOR MEE /ref
+<p> also im scared of the warden now
+<p> <img src="https://i.pinimg.com/736x/54/83/1f/54831f27d0b7bb9a3f39b8a408c02f13.jpg" width="400">
+<p> i mightt make a renchanting au were ren is a pirate and martyn is a merman , this is based on broken mast bay by sail north btw GO LISTEN TO ITT ITS SO GOOD
 
 <p> pfp by applestruda 
