@@ -1,3 +1,3 @@
-i was supposed 2 update this a week ago, it just remained joels digging song cause i have the ability 2 change things, WE CAN CHANGE FATE!!11!!!!!
+<p align="center"><img src="https://file.garden/Z1RDrf5S-wyca2lu/takedown!" width=800">
 
-
+<p align="center">$\color{#e7c3ba}{\textsf{ wipp tehee}}$
