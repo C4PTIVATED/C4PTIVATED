@@ -1,8 +1,6 @@
-<p> ok im back to putting random things here cause i dont wanna make a readme anymore
+<p> ok i'll make this an actual readme cause y not
+<p align="left"><img src="https://github.com/user-attachments/assets/103c658c-fff9-44d2-873f-f584275c956c" width=800">
 
+<p> daily yaps time : i nEED 2 LOCK IN CAUSE FDYM MY EXAMS ARE NEXT WEEK???
+<p> pfp is futa from milgram
 
-<p> "the ghost apperance doesnt matter" ITS A FUCKIGN CAT PNG?????
-<p align="left"><img src="https://file.garden/Z1RDrf5S-wyca2lu/Screenshot_11-8-2025_17348_demonology.fandom.com.jpeg" width=500">
-
-<p> i swear i'll make a pretty readme thats not just my daily yaps
-<p> pfp by @0128house on twitter
