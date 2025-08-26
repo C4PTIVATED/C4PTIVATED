@@ -1,4 +1,5 @@
 <p> OKAHYA I LIED!!! IM NOT MAKING AN ACTUAL PREETTY README!!!!!!
 <p> daily yaps time : im getting into aphmaus rps again , im SUPPOSED TO BE STUDYING FOR MY EXAMS TOMORROW IM SO FR COOKED
-<img src="https://file.garden/Z1RDrf5S-wyca2lu/image_2025-08-26_112646183.png" width="200">
-<img src="https://file.garden/Z1RDrf5S-wyca2lu/image_2025-08-26_112548708.png" width="200">
+<img src="https://64.media.tumblr.com/a7e25a84d401cb22e66760125227fbcd/965bacc7fbb185ed-a5/s500x750/05fc6557cb7fdcd4f9fcabca3051f51f4deea25f.jpg" width="300">
+<p> ooooooOOOHHHHHHHHHHOHOHOHOHOHOOH SHINNNNNYYYYYYYYYYYYYYYYSSSSSSSSSSSSSS 🤑🤑🤑🤑🤑🤑🤑🤑
+
