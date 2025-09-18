@@ -4,4 +4,12 @@
 <p align="center">$\color{#f0dcc4}{\textsf{ wip . actually doing readme }}$
 <p align="center">$\color{#f0dcc4}{\textsf{ dividers by @uzmacchiato on tumblr }}$
 
+
+
+
+
+
+
 <p align="center"><img src="https://64.media.tumblr.com/a8cc668ab14535e41b9eeeb3b06e0afc/b8cd044ac524d7bb-42/s2048x3072/e40713de0197c582d9113562df5b9a9b0cfe26a9.pnj" width="1000000">
+
+
