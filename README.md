@@ -3,7 +3,7 @@
 
 <p align="center">$\color{#f0dcc4}{\textsf{ wip . actually doing readme }}$
 <p align="center">$\color{#f0dcc4}{\textsf{ dividers by @uzmacchiato on tumblr }}$
-
+<p align="center">$\color{#f0dcc4}{\textsf{ also I KNOW MY TINT LOOKS LIKE THOSE AI IMAGES... STOP THISSSS }}$
 
 
 
